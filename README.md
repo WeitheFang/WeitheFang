@@ -6,6 +6,6 @@ Thank you for stopping by!😊
 
 📫 How to reach me
 - Email: weichi.fang@mail.utoronto.ca
-- LinkedIn: https://www.linkedin.com/in/wei-chi-fang-60610523b/
+- LinkedIn: https://www.linkedin.com/in/weichi-fang/
 
 
